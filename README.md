@@ -1,4 +1,4 @@
-✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨
+✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hey there! I'm Rubi, a non-binary Brazilian who has way too many interests.<br>
 &nbsp;&nbsp;&nbsp;&nbsp;I have two majors (Business and Social Communication) and one post-graduation course (Storytelling). I have worked as an English teacher, as a translator, as a screenwriter... Hell, I've even worked as a character performer at a company I can't really say, but I think you can guess ;).<br>
@@ -7,4 +7,4 @@
 &nbsp;&nbsp;&nbsp;&nbsp;I'm just a study enthusiast who's having fun with some languages. HTML, CSS, Javascript, Ruby and C are only the beginning.<br><br>
 &nbsp;&nbsp;&nbsp;&nbsp;If you're interested on having this nerd on your team, just hit me up at ru.volpe@gmail.com
 
-✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨
+✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨

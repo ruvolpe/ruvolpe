@@ -7,4 +7,6 @@
 &nbsp;&nbsp;&nbsp;&nbsp;I'm just a study enthusiast who's having fun with some languages. HTML, CSS, Javascript, Kotlin, Ruby and C are only the beginning.<br><br>
 &nbsp;&nbsp;&nbsp;&nbsp;If you're interested on having this nerd on your team, just hit me up at ru.volpe@gmail.com
 
+&nbsp;&nbsp;&nbsp;&nbsp;[![My Skills](https://skillicons.dev/icons?i=html,css,js)](https://skillicons.dev) [![My Skills](https://skillicons.dev/icons?i=react)](https://skillicons.dev) [![My Skills](https://skillicons.dev/icons?i=nodejs,kotlin&theme=dark)](https://skillicons.dev)
+
 ✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨
